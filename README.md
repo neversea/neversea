@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @neversea (AKA Simon)
+- 👀 I’m interested in how groups of people can innovate together
+- 🌱 I’m currently learning how humans work
+- 💞️ I’m looking to collaborate on exploring new ideas
+- 📫 How to reach me here by messaging me
